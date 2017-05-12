@@ -1,9 +1,7 @@
-Nome Completo: Luiz Boça
+Nome Completo: Eduardo Campos de Souza
 
-E-mail: luiz.boca@clubedosminigameiros.com.br
+E-mail: eduardofidera@gmail.com
 
-Linkedin: http://linkedin.com/luiz.boca
+Linkedin: https://www.linkedin.com/in/eduardo-souza-5aa66613a/
 
-Telefone: (44) 44444-4444 
-
-Portfólio (Opicional): clubedosminigameiros.com.br/portfolio
+Telefone: (48) 99825-5462
